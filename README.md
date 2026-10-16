@@ -6,7 +6,7 @@ $\small{\textsf{ }}$
 c+h comf, int!
 
 
-<img width="1200" src="https://64.media.tumblr.com/fde33a93ee21c43f196aa349846b7bef/a27c70496e579957-3b/s1280x1920/b8bd5dc873704b1c5bb4034c1d8cd905912a60d0.pnj" ships r fine as long its legal, not genuinely absolutely insanely disgusting, and not weird abt it
+<img width="1200" src="https://64.media.tumblr.com/fde33a93ee21c43f196aa349846b7bef/a27c70496e579957-3b/s1280x1920/b8bd5dc873704b1c5bb4034c1d8cd905912a60d0.pnj"> ships r fine as long its legal, not genuinely absolutely insanely disgusting, and not weird abt it
 <img width="604" src="https://64.media.tumblr.com/226223317f3378b35a81daf56de929fa/93d43f67a555cd51-2a/s640x960/64329f9db56f12bdb3460a58efb482599beddf72.gifv" alt="bleh2">
 
 
