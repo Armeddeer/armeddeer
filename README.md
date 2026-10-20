@@ -1,4 +1,4 @@
-<img width="140" src="https://komarev.com/ghpvc/?username=armeddeer&color=b20000" alt="views count"> 
+<img width="140" src="https://komarev.com/ghpvc/?username=Armeddeer&color=b20000" alt="views count"> 
 
 my github is not cutesy this is just where i yap
 u can call me $\Large\color{#6b0000}{\textsf{Wren}}$ (pref) or whatever character my skin is! i am a minor (15) so weirdos $\large\color{#d60000}{\textsf{dni}}$, I suck at talking first so be warned 😣😣😣 
